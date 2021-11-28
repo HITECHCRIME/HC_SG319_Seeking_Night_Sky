@@ -4,6 +4,10 @@
 
 **Listen now:** 
 
+## Chapter Setup
+
+Operatives are setting up a ritual in a remote field, getting rid of an inverted hierophant body - squad has set up tech boxes around surrounding the arcane perimeter, ritual paraphenalia are being sorted out, a body is revealed being prepared for being neutralized.
+
 ## Project Data
 
 Description.
