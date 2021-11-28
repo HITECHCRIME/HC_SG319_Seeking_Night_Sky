@@ -1,4 +1,4 @@
-[cover code] ![](cover-theme.png)
+![](cover-theme.png)
 
 # MOTHNODE_ Seeking Night Sky (prod. Yung Venxm)
 
