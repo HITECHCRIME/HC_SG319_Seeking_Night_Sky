@@ -43,6 +43,13 @@ none of this shit is fine
 none of these damn rules apply
 imma take my own pride
 
+die in vain, been playing us far too long
+words of wisdom are nothing but arcane
+sights beholding in your mind 
+we've been doing it alone, away from pesky eyes
+time after time destroying default orders
+sanguinistic tendencies of the borders
+
 ```
 
 ## Lore Notes
